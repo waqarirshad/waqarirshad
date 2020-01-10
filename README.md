@@ -1,2 +1,0 @@
-# waqarirshad
-my personal website
